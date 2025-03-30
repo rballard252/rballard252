@@ -7,15 +7,20 @@ Elite Martial Arts Brentwood | Aug. 2022 – Sept. 2024 | Brentwood, TN
 Assistant Instructor    	          	        	                    	                                	        	        	 	   	        
 Elite Martial Arts Brentwood is a mixed martial arts facility that teaches Krav Maga, Muay Thai, Brazilian Jiu Jitsu, and several other, less frequent, styles in addition to several weapons.
 As an assistant instructor, I led and assisted mixed martial arts classes with children, teens, and adults aged 5-70. I also handled merchandise sales and relationships with parents and potential customers.
-I was also often assigned to new students and those with special needs for one-on-one attention, fostering courage and confidence in them and patience and dilligence in me.
+I was also often assigned to new students and those with special needs for one-on-one attention, fostering courage and confidence in them and patience and diligence in me.
 
 
 Babysitting | Sept. 2022 – Aug. 2024 | Brentwood, TN                                                                                                                               
-I was babysitting consistantly throughout this time, including nannying for the month of August 2024. The children were ages 5 months to 11 years old for up to six hours, with excursions including the zoo, the library, and public parks.
+I was babysitting consistently throughout this time, including nannying for the month of August 2024. The children were ages 5 months to 11 years old for up to six hours, with excursions including the zoo, the library, and public parks.
 Certifications: Red Cross CPR Certification, Red Cross Babysitting Certification
  
 
 EDUCATION
+
+Northeastern University
+Expected May 2028 | Boston, MA
+Computer Science and Communication Studies
+Boxing Club
 	
 Brentwood High School                                                                                          
 May 2024 | Brentwood, TN                                                                                                
